@@ -1,1 +1,1 @@
-Theory/Presentatins can be found here https://mitu.co.in/ai-cdac-drdo-july2024/
+Theory/Presentations can be found here https://mitu.co.in/ai-cdac-drdo-july2024/
